@@ -167,7 +167,7 @@ Robert smiled, the kind of smile that came from genuine care. “Well, if it eve
 
 His sincerity pierced the thin veil of stoicism she wore like armor. She didn’t respond, only nodded, unsure whether her voice would betray her.
 
-Julie stirred next, yawning, stretching, then eyeing the campfire. “Coffee?” she mumbled.
+Julie stirred next, yawning and stretching. “Coffee?” she mumbled.
 
 James sat up, already brushing sand from his tunic. Shively, stubborn as ever, refused to move until Julie nudged him repeatedly.
 
